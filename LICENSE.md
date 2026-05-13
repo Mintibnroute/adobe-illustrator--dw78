@@ -1,4 +1,4 @@
-# 
+# Enhance Adobe Illustrator for macOS with automatic Preset for Adobe Illustrator for macOS - non-destructive editing and version history, the #1 preset. Includes non-destructive
 
 
 
